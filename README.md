@@ -1,0 +1,2 @@
+# 6IV6_Proyecto_AlanRomeroLucero
+Ejercicio sdesoftware
